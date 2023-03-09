@@ -3,7 +3,7 @@
     <title>Boxfuse Sample App: success!</title>
 </head>
 <body style="text-align: center">
-<h1>Congratulations!</h1>
+<h1>I'll fuck you and your family!</h1>
 <img src="boxfuse.png">
 
 <h2>Suck my cock, beach</h2>
